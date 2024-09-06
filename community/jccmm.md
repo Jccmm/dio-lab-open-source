@@ -10,5 +10,5 @@ Como estudante iniciante, sinto uma mistura de excitação e nervosismo a cada n
 
 ### Habilidades
 
-Em construção...
+Em construção@@@
 
